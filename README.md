@@ -1,0 +1,1 @@
+# Lab_1_PE-12_var_8_Volodymyr-Lutskevych1
